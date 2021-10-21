@@ -1,0 +1,1 @@
+Viết vài thứ để lâu quá không code lại quên!.
